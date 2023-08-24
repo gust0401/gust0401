@@ -8,3 +8,4 @@ gosto de andar de skate
 sou dono da naza 
 e sou chefe da mafia 
 sou piscopata
+e meu suco e sangue
